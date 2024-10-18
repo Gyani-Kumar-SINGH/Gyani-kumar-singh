@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Gyani-Kumar-SINGH
 - 👀 I’m interested in ...EDITING VIDEO
 - 🌱 I’m currently learning ...Data Analytics
-- 💞️ I’m looking to collaborate on ...TeachinG
+- 💞️ I’m looking to collaborate on ...Designer
 - 📫 How to reach me ...gyanikumar841222@gmail.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...i am Very funny😊
