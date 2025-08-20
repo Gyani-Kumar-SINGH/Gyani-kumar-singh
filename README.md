@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Gyani-Kumar-SINGH
 - 👀 I’m interested in ...EDITING VIDEO
 - 🌱 I’m currently learning Mechanical Engineering at railway workshop West Bengal 🏭👨‍🏭⛑️
-- 💞️ I’m looking to collaborate on ...Designer on latest Fashion and changing india into a spiritual clothes 👳‍♀️🧥 my name is to change Indian people into a previous clothnenism 🕉️
+- 💞️ I’m looking to collaborate on ...Designer on latest Fashion  spiritual clothes 👳‍♀️🧥 my aim is to change Indian people into a previous clothnenism 🕉️
 - 📫 How to reach me ...gyanikumar841222@gmail.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...i am Very funny😊
